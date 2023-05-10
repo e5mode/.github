@@ -12,7 +12,8 @@ Begin 2021 kwam de organisatie in handen van een familiale groep die de ambitie 
 
 Kan jij je helemaal vinden in deze filosofie? Wil je graag werken bij een Belgisch bedrijf in volle groei? Neem een kijkje bij onze vacatures hiernaast.
 
-Spontane sollicitatie
+### Spontane sollicitatie
+
 Hebben we momenteel geen passende vacature voor jou? Dan kan je spontaan solliciteren. Vertel ons naar welke job je op zoek bent en waarom je bij e5 past.
 
 Stuur je cv en motivatiebrief per mail naar jobs@e5.be
