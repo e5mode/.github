@@ -19,6 +19,7 @@ Hebben we momenteel geen passende vacature voor jou? Dan kan je spontaan sollici
 Stuur je cv en motivatiebrief per mail naar jobs@e5.be
 
 e5 Fashion BV – HR
+
  [Vacatures](https://werkenbije5.be/)
 
 
